@@ -63,3 +63,10 @@ If you still need more codes, and we have been a bit short, there are a couple o
 You can also join the Sony Rewards Program. The program helps people interested in the entertainment community. The membership also gives away one-of-a-kind gifts, various prizes, bundles, and different experiences. It is not something you would want to miss out on.
 
 This page is also updated whenever we find some new Free PSN Codes. You can check back and feast on the new codes. Make sure to bookmark this page, and check back frequently.
+
+
+What Are PSN Codes?
+PSN codes can be redeemed by users for free credits. If you are ever in a tight spot but yearning for a new game, these Free PSN Codes can be your savior. The codes have a different value, unknown before redeeming a code.
+
+Final Thoughts
+This is all we have for Free PSN Codes for now, but make sure to check back later on for any new codes. Let us know in the comments below if you would like more guides like this one.
